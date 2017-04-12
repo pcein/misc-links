@@ -31,3 +31,5 @@ https://www.youtube.com/watch?v=lFL6k-qwUaE (everything you need to make educati
 https://www.lynda.com/Photography-Cameras-Gear-tutorials/Comparing-DSLRs-traditional-camcorders/73565/81831-4.html (dslr videography course on lynda)
 
 http://nofilmschool.com/2017/01/harvard-wants-teach-you-about-dslr-photography-onlinefor-free (harvard dslr photography course)
+
+https://www.youtube.com/watch?v=3PfG2pWwBLk (launching your first online course - an interview)
