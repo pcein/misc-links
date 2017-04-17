@@ -12,9 +12,17 @@ http://stackoverflow.com/questions/97637/good-explanation-of-combinators-for-non
 
 ## Video production
 
+https://www.youtube.com/watch?v=cHr7mvYIQ1Y (sj's tips)
+
 https://www.videoschoolonline.com/course-creator-equipment/
 
 https://www.youtube.com/watch?v=gkUqBJoxZ-I (3 point lighting demo)
+
+https://www.youtube.com/watch?v=j_Sov3xmgwg (3 point lighting demo)
+
+https://www.youtube.com/watch?v=axKEUnxqWZY (dslr photography fundamentals)
+
+https://www.youtube.com/watch?v=QbBR7IsBbZ8 (dslr video production tutorial)
 
 http://courses.videoschoolonline.com/p/dslr-video-production-online-course-tutorial-training
 
