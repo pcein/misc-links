@@ -39,3 +39,9 @@ https://www.lynda.com/Photography-Cameras-Gear-tutorials/Comparing-DSLRs-traditi
 http://nofilmschool.com/2017/01/harvard-wants-teach-you-about-dslr-photography-onlinefor-free (harvard dslr photography course)
 
 https://www.youtube.com/watch?v=3PfG2pWwBLk (launching your first online course - an interview)
+
+### Video kits
+
+http://www.tomtop.com/studio-light-shed-kits-338/p-d3952us.html?currency=INR&aid=gplain&gclid=CLGOl4yDq9MCFdISaAod0_4FUw (Andoer 3 point light kit)
+
+
