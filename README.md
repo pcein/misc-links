@@ -14,6 +14,8 @@ http://stackoverflow.com/questions/97637/good-explanation-of-combinators-for-non
 
 https://www.videoschoolonline.com/course-creator-equipment/
 
+https://www.youtube.com/watch?v=gkUqBJoxZ-I (3 point lighting demo)
+
 http://courses.videoschoolonline.com/p/dslr-video-production-online-course-tutorial-training
 
 https://www.youtube.com/watch?v=qGUorw3s_3Q (mooc video production process)
